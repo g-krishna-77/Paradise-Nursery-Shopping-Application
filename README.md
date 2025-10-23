@@ -1,1 +1,0 @@
-# Paradise-Nursery-Shopping-Application
